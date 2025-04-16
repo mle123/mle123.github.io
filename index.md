@@ -1,5 +1,2 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+About me
+My name is Emily, my mothertongue is English and I live near the Derletal, for which my translation thus far is "Valley of the Dell", (which seems a bit tautological), and which is a foresty park in Bonn Hardtberg. 
